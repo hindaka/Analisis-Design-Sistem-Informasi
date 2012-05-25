@@ -1,0 +1,1 @@
+media penyimpanan untuk ADSI
